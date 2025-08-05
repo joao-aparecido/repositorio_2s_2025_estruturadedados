@@ -1,0 +1,1 @@
+# repositorio_2s_2025_estruturadedados
